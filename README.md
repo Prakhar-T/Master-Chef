@@ -2,10 +2,10 @@
 
 Ingredients-
 All-Purpose Flour:
-Unsweetened Natural Cocoa Powder: 
+Unsweetened Natural Cocoa Powder:
 Salt:
 Espresso Powder:
-Oil: .
+Oil:
 Eggs:
 Buttermilk:
 Vanilla Extract:
